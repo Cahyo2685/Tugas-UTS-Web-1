@@ -1,3 +1,3 @@
-## Page View
+## 📄 Page View
 
-![screen51](https://github.com/user-attachments/assets/64ccd1ec-0dd7-4790-91a0-c2672c0651c0)
+![screen51](https://github.com/user-attachments/assets/732b544a-4641-4716-9710-2c65b7ea605f)
